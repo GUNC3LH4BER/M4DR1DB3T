@@ -8,4 +8,4 @@
 
 
 
-<a href="https://www.tgrthaber.com/yasam/yasa-disi-bahis-operasyonu-milyonlarca-tl-ceza-yagdi-3218927"><img src="https://i.ibb.co/zWpMxH3y/photo-2025-05-13-00-33-58.jpg" alt="photo-2025-05-13-00-33-58" border="0"></a><br /><a target='_blank' href='https://nl.imgbb.com/'></a><br />
+<a href="https://ibb.co/wFZv4mzj"><img src="https://i.ibb.co/1tYSTWmj/image.png" alt="image" border="0"></a><img src="https://ibb.co/wFZv4mzj" alt="photo-2025-05-13-00-33-58" border="0"></a><br /><a target='_blank' href='https://ibb.co/wFZv4mzj'></a><br />
